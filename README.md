@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there! 👋
 
 - 🔭 I’m currently working on some projects
 - If you want to speak 🇫🇷 with me I'm all for it!

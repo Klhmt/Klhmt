@@ -8,6 +8,7 @@
     - on Discord: Klem#0462
     - on Telegram: @Klem0000
     - on Twitter: @jacq_clem
+    - on Matrix: @klem0:matrix.org
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have always used Windows 😶
 - ❓ Why does time pass so quickly?

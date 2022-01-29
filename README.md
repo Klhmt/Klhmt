@@ -4,6 +4,7 @@
 - If you want to speak 🇫🇷 with me I'm all for it!
 - 🌱 I’m currently learning Python
 - 🤔 I think I'll learn C++
+- ⌨️ I type about 300 characters per minute
 - 📫 How to reach me:
     - on Discord: Klem#0462
     - on Telegram: @Klem0000
